@@ -5,3 +5,5 @@
 1st Samuel 1 : 6 -20
 ```
 2. Any man on `EARTH` without a `PROBLEM` is a `PROBLEM` to the `EARTH`
+
+3. `Progress` in life demands `Vision`, `Consistency` and `Hardworking`.
