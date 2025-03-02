@@ -1,3 +1,3 @@
 # Quote
 
-Lets dive into some interesting quotes that helps us to step from low to high level
+Join me as we share some interesting quotes that helps us to step from low to high level. Your contributions and opinion are highly welcome...
