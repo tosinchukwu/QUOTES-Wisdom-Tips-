@@ -12,4 +12,7 @@
 ```
 1 Samuel 17 : 34 -37
 ```
-5. 
+5. the `BRERAKFAST` of `CHAMPIONS` is not `TEA` but `PROBLEMS` (to settle)
+```
+1 Samuel 17 :26
+```
