@@ -16,3 +16,4 @@
 ```
 1 Samuel 17 :26
 ```
+Your `DESTINY` is not tied to the people who `walk away` from you.
