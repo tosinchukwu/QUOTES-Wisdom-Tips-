@@ -19,3 +19,5 @@ The `BRERAKFAST` of `CHAMPIONS` is not `TEA` but `PROBLEMS` (to settle)
 Your `DESTINY` is not tied to the people who `walk away` from you.
 
 When it's your time.God has a tendency of picking up a `nobody`, to become `somebody`, in front of `everybody`, without consulting `anybody`. 
+
+Your `Destiny` is not tied to the people who `walk away` from you.
