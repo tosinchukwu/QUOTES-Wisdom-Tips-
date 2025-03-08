@@ -21,3 +21,8 @@ Your `DESTINY` is not tied to the people who `walk away` from you.
 When it's your time.God has a tendency of picking up a `nobody`, to become `somebody`, in front of `everybody`, without consulting `anybody`. 
 
 Your `Destiny` is not tied to the people who `walk away` from you.
+
+When `CONDITION` knock you down, try to fall on your back, because if you can `LOOK UP` you can `RISE UP`.
+```
+Micah 7 : 8
+```
