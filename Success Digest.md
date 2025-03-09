@@ -26,3 +26,7 @@ When `CONDITION` knock you down, try to fall on your back, because if you can `L
 ```
 Micah 7 : 8
 ```
+When the devils remind you of your `PAST` remind him of your `FUTURE`
+```
+Isaiah 43 : 18 -19
+```
