@@ -30,3 +30,9 @@ When the devils remind you of your `PAST` remind him of your `FUTURE`
 ```
 Isaiah 43 : 18 -19
 ```
+
+Your `FUTURE` is `DETERMINED` by the `PICTURE` from the `SCRIPTURE`
+```
+Ephesians  1 : 18
+```
+
