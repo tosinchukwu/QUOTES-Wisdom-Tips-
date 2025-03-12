@@ -35,4 +35,8 @@ Your `FUTURE` is `DETERMINED` by the `PICTURE` from the `SCRIPTURE`
 ```
 Ephesians  1 : 18
 ```
+Stay in the `WORD`, and you wont be `STRANDED` in the World. 
+```
+Joshua 1 : 8
+```
 
