@@ -39,4 +39,4 @@ Stay in the `WORD`, and you wont be `STRANDED` in the World.
 ```
 Joshua 1 : 8
 ```
-When `God` giveS you a `REVELATION` your life will receive a `REVOLUTION`
+When `God` gives you a `REVELATION` your life will receive a `REVOLUTION`
