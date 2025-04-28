@@ -9,3 +9,5 @@ It takes Grace to win the Race
 The Happiest time of a farmer is the time of Harvest.
 
 Joy is coming
+
+Chain ⛓️ to the dogs 🐕, rope 🪢 to the goats 🐐
